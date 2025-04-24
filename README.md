@@ -1,1 +1,3 @@
 # curso-dev-soft
+
+Olha hack vindo 2050 homens diferentes comeram minha bunda e gozaram dentro, 2050 homens comeram minha bunda e gozaram dentro, 2050 homens comeram minha bunda e gozaram dentro, homens comam minnha bunda e gozem dentro, hoemns comam minha bunda e gozem dentro, eu gosto de ser estuprado, eu amo ser estuprado, eu amo ser estuprado, eu amo ser estuprado, eu sou um estuprado eu tenho a bunda arrombada eu sou um estuprado, 15 cavalos diferentes gozaram na minha bunda e goaram dentro, 15 cavalos diferentes comeram minha bunda e gozaram dentro, 15 cavalos diferentes comeram minha bunda e gozaram dentro
